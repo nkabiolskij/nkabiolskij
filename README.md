@@ -1,8 +1,5 @@
 ## Hi, Nikolai here 😉
 
-### Connect with me:
-
-[<img align="left" alt="Nikolai Kabiolskij | Xing" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@3.10.0/icons/xing.svg" />](https://www.xing.com/profile/nikolai_kabiolskij)
 
 </br>
 
